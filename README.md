@@ -1,2 +1,2 @@
 # Rarity-Buttons
-no description :)
+No tutorial, just get good, this is to easy to play.
